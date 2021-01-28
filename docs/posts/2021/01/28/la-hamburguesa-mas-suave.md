@@ -3,19 +3,20 @@
 
 Hola, amigos. Hoy continúa la búsqueda de la mejor hamburguesa en el Alameda y al rededores. En la bonita ciudad de Monterrey.
 
+
 He llegado al primer puesto, porque el frío me ha obligado a resguardarme. Amo el frío, pero hoy salí sin suéter, solamente manga corta y chaqueta de cuero.
 
 Estoy en un puesto al aire libre, pero acomodaron una lona tan bien que no pasa el aire.
 
 4 estrellas para la habilidosa persona que lo puso, se agradece.
 
-![alt 4 estrellas]
+![alt 4 estrellas](https://media.tenor.com/images/ba0790e6c9ae24399446c174187d9014/tenor.gif)
 
 Recién pedí una hamburguesa sencilla y ya la preparon. Estupendo tiempo 👍
 
 Ahora sí vamo' a probar.
 
-![alt delicioso]
+![alt delicioso](https://media1.tenor.com/images/81745c55c2960fb8ba6c6eec62f047d8/tenor.gif?itemid=10547343)
 
 Mi paladar agradece encontrarse con una carne tan suave; el pan es esponjoso como una nube, pude notar que fue de un paquete nuevo.
 
@@ -31,5 +32,5 @@ No puedo decir que sea la mejor hamburguesa, pero es sabrosa, me quitó el hambr
 
 Nos despedimos con esta canción. Hasta la próxima.
 
-![alt músic]
+![alt músic](https://media.tenor.com/images/0b96db72a26a05c1b6ef4993ee622513/tenor.gif)
 
